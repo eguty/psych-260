@@ -14,7 +14,11 @@ Office hours by appointment: <http://doodle.com/rickgilmore>
 
 ### Teaching Assistant
 
-TBD
+**Erin Guty**</br>
+Clinical Psychology Doctoral Student</br>
+372 Moore Building</br>
+<exg5204@psu.edu></br>
+Office hours: Tuesdays 10am-1pm
 
 ## Meeting Location and Time
 
